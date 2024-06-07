@@ -1,1 +1,1 @@
-# Projet_1_wild_code_scholl
+# Projet_1_wild_code_school
